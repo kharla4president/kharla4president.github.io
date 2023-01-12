@@ -1,4 +1,4 @@
 # kharla4president.github.io
-Kharla Dominique Bicaldo
+##Kharla Dominique Bicaldo
 
-LG Brebeuf
+LG *Brebeuf*
