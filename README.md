@@ -12,4 +12,4 @@ LG *Brebeuf*
 
 | ( ⋆•ิ ᴈ-ิ(ᵕ❥ ᵕ⁎ ॢ)  | ٩꒰ ˘ ³˘꒱۶~♡ | (ᵒ̴̶̷̤́◞౪◟ ᵒ̴̶̷̤̀ ) | ( ⋆•ิ ᴈ-ิ(ᵕ❥ ᵕ⁎ ॢ) | ˛˛ƪ(⌾⃝ ౪ ⌾⃝ ๑)و ̉ ̉ |
 | ------------- | ------------- | ------------ | ------------ | ------------ |
-**| Love Forgives | Love is Compassionate | Love is Pure | Love is Patient | Love Grows |**
+**| Love Forgives | Love is Compassionate | Love is Pure | Love is Patient | Love Grows |
