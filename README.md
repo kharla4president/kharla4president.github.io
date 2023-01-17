@@ -10,4 +10,6 @@ LG *Brebeuf*
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/XToA-1dZYWA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+| ( ⋆•ิ ᴈ-ิ(ᵕ❥ ᵕ⁎ ॢ)  | ٩꒰ ˘ ³˘꒱۶~♡ | (ᵒ̴̶̷̤́◞౪◟ ᵒ̴̶̷̤̀ ) | ( ⋆•ิ ᴈ-ิ(ᵕ❥ ᵕ⁎ ॢ) | ˛˛ƪ(⌾⃝ ౪ ⌾⃝ ๑)و ̉ ̉ |
+| ------------- | ------------- | ------------ | ------------ | ------------ |
 **| Love Forgives | Love is Compassionate | Love is Pure | Love is Patient | Love Grows |**
